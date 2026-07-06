@@ -44,7 +44,7 @@ Indian ethnic wear e-commerce platform inspired by India's cultural diversity.
 
 ---
 
-### Devora
+### Devoraaa
 Product development and freelance studio through which I delivered client projects and custom software solutions.
 
 - UK Client E-Commerce Platforms
